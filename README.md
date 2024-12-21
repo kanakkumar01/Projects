@@ -1,2 +1,2 @@
-# Projects
+# Portfolio
 Kanak Kumar | Portfolio
